@@ -1,0 +1,1 @@
+# yamasyunnaoko.github.io
